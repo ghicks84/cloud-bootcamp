@@ -1,8 +1,10 @@
 # cloud-bootcamp
 
-Get ready to learn something brand new! im excited. yesssssssss..
+
+
+cloud bootcamp branch.. added 
 
 
 
-ready to learn something great. 
+dont give up , continue to learn and be diligent. 
 
